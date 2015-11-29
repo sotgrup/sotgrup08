@@ -1,1 +1,0 @@
-ebali sa ti maikata
